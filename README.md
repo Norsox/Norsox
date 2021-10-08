@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Norsox
 - 👀 HTML and Lua developer
 - 🌱 I’m Content creator on youtube
-- 📫 Contact me on discord: �𝗼𝗿𝘀𝗼𝘅™#0001
+- 📫 Contact me on discord: 𝗡𝗼𝗿𝘀𝗼𝘅™#0001
